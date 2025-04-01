@@ -1,1 +1,1 @@
-See realease for the download
+See realeases for the download
